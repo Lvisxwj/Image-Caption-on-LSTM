@@ -41,5 +41,3 @@ Halloween decorations everywhere. Fake tombstones. Plastic skeletons. Cheap appr
 She deserved better. Deserved someone who wasn't using her as proof that prophecies come true. Deserved someone who could be present instead of drowning in the past.
 
 ## *The past is a loaded gun. You can try to unload it, hide it in a drawer, pretend it's not there. But sooner or later, you're going to put it in your mouth.*
-
-*The past is a loaded gun. You can try to unload it, hide it in a drawer, pretend it's not there. But sooner or later, you're going to put it in your mouth.*
